@@ -6,3 +6,4 @@ AND MORE!!!😝😝
 He/Him!! Proud Transmasc 🏳️‍⚧️🐈
 INT/C+H! <3
 TALK WITH ME!!! DONT BE SHY PLSS (I am..)
+YOU CAN CALL ME LEXRON!!!¡¡¡
